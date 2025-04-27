@@ -1,3 +1,3 @@
 
-👀 I’m Yi·interested in Front-end·[Amateur designer](https://ekar.site)·[Freelance photographer](https://gallery.ekar.site)
+👀 I’m Yi·interested in Front-end·[Amateur designer](https://olcchi.me)·[Freelance photographer](https://gallery.olcchi.me)
 
